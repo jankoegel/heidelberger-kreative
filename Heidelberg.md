@@ -7,6 +7,7 @@
 + [Kalamari Klub](https://www.kalamariklub.org)
 + [Niko Neithardt](https://www.instagram.com/niko.neithardt)
 + [Max P. Martin](https://maxpmartin.com)
++ [Storyloop](https://storyloop.de/)
 
 ## Musik
 + [Buddha Sentenza](http://buddhasentenza.de)
